@@ -8,9 +8,9 @@ Entry for the [One Line, Big Laugh](https://make.fun/bounty/u-coral-404-one-line
 
 ## The line
 
-> My smart fridge just emailed me: it has seen what I eat at 2 a.m. and it is filing for divorce.
+> I asked the chatbot for help. It escalated me to a human, apologized to the human for me, and rated me one star.
 
-95 characters, one line.
+112 characters, one line.
 
 ## How it works
 
